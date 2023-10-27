@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on lots of projects with you guys
 - 📫 IG @yveedope
 -    fb@nwaojei victor
--    twt @yveedope
+-    twt @v_nwaojei
 -    linkdn @nwaojeivictor
 
 <!---
